@@ -9,9 +9,9 @@ Your name
 
 hello my name is Fatma Oymak my best sport is playing "basketball"
 which I played school team when I was at college
-my favorite food is "Turkish version of str fry" if you want to learn why 
-first I like eating vegetables and I am cooking them almost none
-and I believe very healthy meal when I eat it afterward :)
+my favorite food is vegetables soup
+
 https://www.youtube.com/watch?v=uqvfbIuJd6Y
-my heart full of happiness and always I want to do good things for humanity and
-this world.
+
+I am a human
+
